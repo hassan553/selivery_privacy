@@ -22,4 +22,4 @@ This Privacy Policy is effective as of February 16, 2024 and will remain in effe
 we reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you either through the email address you have provided us, or by placing a prominent notice on our app.
 
 Contact Information
-For any questions or concerns regarding the privacy policy, please send us an email to [[Contact Email Address]].
+For any questions or concerns regarding the privacy policy, please send us an email to mohameddmz2012@gmail.com.
